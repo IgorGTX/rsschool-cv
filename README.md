@@ -1,1 +1,1 @@
-https://IgorGTX.github.io/rsschool-cv/cv
+https://IgorGTX.github.io/rsschool-cv/
